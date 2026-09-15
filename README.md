@@ -1,8 +1,10 @@
-<sub> im feeling so lazy to make my profile. give it 2 years or so lelelel
+<div align="center">
 
-<sub> interact with me to know more about me , meow
+<img src="https://i.pinimg.com/736x/3c/2a/dd/3c2add9a4118a679fda8c43de7478057.jpg" width="400px" style="margin-center: 100px;">
 
-<sub> I am not a official Meowdoku staff/affiliate. I encourage yall to play the game because it's absolutely fun! 
+<sub> ⤴ emi (me) , sweet, kyeom
+
+<sub> I am not an official Meowdoku staff/affiliate. I encourage yall to play the game because it's absolutely fun! 
 
 <sub> [meowdoku](https://meowdoku.org/) ♡ [askbox - ask me anything](https://www.askbox.buzz/ask/emidoku) </sub>
 
