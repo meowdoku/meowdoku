@@ -4,7 +4,7 @@
 
 <sub> ⤴ emi (me) , sweet, kyeom
 
-<sub> I am not an official Meowdoku staff/affiliate. I encourage yall to play the game because it's absolutely fun! 
+<sub> **I am not an official Meowdoku staff/affiliate.** I encourage yall to play the game because it's absolutely fun! 
 
 <sub> [meowdoku](https://meowdoku.org/) ♡ [askbox - ask me anything](https://www.askbox.buzz/ask/emidoku) </sub>
 
