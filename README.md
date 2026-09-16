@@ -6,6 +6,8 @@
 
 <sub> **I am not an official Meowdoku staff/affiliate.** I encourage yall to play the game because it's absolutely fun! 
 
+<sub> I love singing my heart out, listening to music (any genres aside from ones with harsh / extreme sounds), and finding new hobbies that interest me. 
+
 <sub> [meowdoku](https://meowdoku.org/) ♡ [askbox - ask me anything](https://www.askbox.buzz/ask/emidoku) ♡ [vault](https://vaults.lol/meowdoku) </sub>
 
 
