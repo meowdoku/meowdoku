@@ -6,14 +6,35 @@
 
 <sub> **I am not an official Meowdoku staff/affiliate.** I encourage yall to play the game because it's absolutely fun! 
 
-<sub> I love singing my heart out, listening to music (any genres aside from ones with harsh / extreme sounds), and finding new hobbies that interest me. 
-
 <sub> [meowdoku](https://meowdoku.org/) ♡ [askbox - ask me anything](https://www.askbox.buzz/ask/emidoku) ♡ [vault](https://vaults.lol/meowdoku) </sub>
 
+<table>
+  <tr>
+    <td>♡ <b>about me</b></td>
+    <td>⛔ <b>dni</b></td>
+  </tr>
+  <tr>
+    <td>
+      <sub>
+        7teen, she/her, straight ally! <br> 
+        singing, music, finding new hobbies ♡ <br>
+        I don't like swearing :') <br>
+        C+H at all times! I love cuds with everyone ;3
+      </sub>
+    </td>
+    <td>
+      <sub>
+        Racists, misogynists, hypocrites, negativity,<br>
+        𝗜𝗪𝗘𝗖 freaks & trolls (especially Filipino trolls).<br>
+        I don't hesitate to block anyone who disrespects my boundaries.
+      </sub>
+    </td>
+  </tr>
+</table>
 
 <sub>
 <details>
-<summary>click for a surprise 🐾 </summary>
+<summary>extra 🐾 </summary>
 
 <table>
   <tr>
