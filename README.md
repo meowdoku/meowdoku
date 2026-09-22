@@ -26,8 +26,6 @@ $\color{#FF61B6}{\text{C+H at all times! I love cuds with everyone ;3}}$
 
 $\color{#C4834F}{\text{i like cupcakes cookies and cucumbers ᓚᘏᗢ}}$
 
-$\color{#FFE13D}{\text{──────────────── · · ─ · ᓚᘏᗢ · ─ · · ────────────────}}$
-
 
   </tr>
 </table>
@@ -44,7 +42,7 @@ $\color{#FFE13D}{\text{──────────────── · · �
 
 $\color{#FF6E9E}{\text{──────────────── · · ─ · ᓚᘏᗢ · ─ · · ────────────────}}$
 
-<img align="right" width="200" src="https://64.media.tumblr.com/11acf4e9413e1e60a7d2f04c579fb29c/4928abb295212835-c9/s500x750/4c07fff56cf20590ac65fc3a2d1c42874025d92c.pnj">
+<img align="right" width="100" src="https://64.media.tumblr.com/11acf4e9413e1e60a7d2f04c579fb29c/4928abb295212835-c9/s500x750/4c07fff56cf20590ac65fc3a2d1c42874025d92c.pnj">
 
 $\color{#FF6E9E}{\text{ WORK IN PROGRESS !! }}$
 
