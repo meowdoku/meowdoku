@@ -60,8 +60,6 @@ $\color{#FF6E9E}{\text{sam and cat, loud house +more}}$
 <br clear="left">
 
 <br>
-<br>
-<br>
 
 
 <sub> **I am not an official Meowdoku staff/affiliate.** I encourage yall to play the game because it's absolutely fun! 
