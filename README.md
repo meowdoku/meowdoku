@@ -34,7 +34,7 @@ $\color{#C4834F}{\text{i like cupcakes cookies and cucumbers ᓚᘏᗢ}}$
 
 <img src="https://64.media.tumblr.com/52949924ee269cd0bb04ebacdd80792a/3e27ca2a79dfde43-e4/s2048x3072/1218db0d61fe49cc9ab632b01520b917f611fd75.pnj" width="1000">
 
-<img align="right" width="300" src="https://64.media.tumblr.com/50455fda84b6097e9d0232470f0887d7/59f3572f423bf4d5-f2/s540x810/2348d6fa0beb8012e9ef0cb80f0723e486d05506.gifv">
+<img align="right" width="200" src="https://64.media.tumblr.com/50455fda84b6097e9d0232470f0887d7/59f3572f423bf4d5-f2/s540x810/2348d6fa0beb8012e9ef0cb80f0723e486d05506.gifv">
 
 <table>
   <tr>
