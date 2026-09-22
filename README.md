@@ -5,7 +5,7 @@
 $\color{#F754B8}{\text{⠀˖⠀⠀છ⠀⠀better viewed in light mode !!     ﹙あ﹚}}$
 
 
-<img align="left" width="400" src="https://64.media.tumblr.com/a8ceb8c8851e923a86a93930849760c7/c303a2bae27b4832-c5/s1280x1920/5275691cff9b1f572176bdd48abe35353fb0a21e.gifv">
+<img align="left" width="300" src="https://64.media.tumblr.com/a8ceb8c8851e923a86a93930849760c7/c303a2bae27b4832-c5/s1280x1920/5275691cff9b1f572176bdd48abe35353fb0a21e.gifv">
 
 <table>
   <tr>
