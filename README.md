@@ -17,7 +17,7 @@ $\color{#FF6E9E}{\text{──────────────── · · �
 
 $\color{#C4834F}{\text{ hai! i'm emi, I am 7teen and go by she/her !! }}$
 
-$\color{#FFE13D}{\text{I love music, to sing, and finding new hobbies ♡}}$
+$\color{#FFE13D}{\text{I love music and singing ♡}}$
 
 
 <img align="left" width="50" src="https://64.media.tumblr.com/bffa5a9121678fe5807e2319b353249d/f0eab5d3be8cf63c-ae/s500x750/157d3d4c798e4cecaf2c753a225a90ad70caec25.pnj">
