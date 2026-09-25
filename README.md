@@ -44,15 +44,8 @@ $\color{#FF6E9E}{\text{──────────────── · · �
 
 <img align="right" width="100" src="https://64.media.tumblr.com/11acf4e9413e1e60a7d2f04c579fb29c/4928abb295212835-c9/s500x750/4c07fff56cf20590ac65fc3a2d1c42874025d92c.pnj">
 
-$\color{#FF6E9E}{\text{ WORK IN PROGRESS !! }}$
-
-$\color{#FFE13D}{\text{ im feeling lazyyy mewoewmoew}}$
-
-$\color{#A88059}{\text{ creds to tumblr 4 icons + decors}}$
-
-$\color{#FF6E9E}{\text{ favs: steven universe, meowdoku}}$
-
-$\color{#FF6E9E}{\text{sam and cat, loud house +more}}$
+ <a href="https://github.com/kittinan/spotify-github-profile">
+        <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=natemoo-re&show_offline=true&background_color=fff0f5&interchange=false&profanity=false&hide_remaster=true&bar_color=e594d0&bar_color_cover=false" alt="spotify-github-profile">
 
   </tr>
 </table>
