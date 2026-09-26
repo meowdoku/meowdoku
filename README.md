@@ -57,4 +57,4 @@ $\color{#FF6E9E}{\text{──────────────── · · �
 
 <sub> **I am not an official Meowdoku staff/affiliate.** I encourage yall to play the game because it's absolutely fun! 
 
-<sub> [meowdoku](https://meowdoku.org/) ♡ [askbox - ask me anything](https://www.askbox.buzz/ask/emidoku) ♡ [vault](https://vaults.lol/meowdoku) </sub>
+<sub> [meowdoku](https://meowdoku.org/) ♡ [askbox - ask me anything](https://www.askbox.buzz/ask/emidoku) ♡ [vault](https://vaults.lol/meowdoku) ♡ [listography](https://listography.com/meowdoku) </sub>
