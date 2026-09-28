@@ -34,7 +34,7 @@ $\color{#59A1D4}{\text{i like cupcakes cookies and cucumbers ᓚᘏᗢ}}$
 
 <img src="https://64.media.tumblr.com/be3205e6d544045836d99c11c881afbe/e2d1034c6fe5c227-2c/s2048x3072/881545e22600aaa610588b7e14bea27e5b167239.pnj" width="1000">
 
-<img align="right" width="300" src="https://github.com/user-attachments/assets/68400d07-f2cc-4580-86ed-7afdab004ab9">
+<img align="right" width="400" src="https://i.pinimg.com/1200x/a2/3a/98/a23a988425f2a1900954baeb278dbb45.jpg">
 
 <table>
   <tr>
