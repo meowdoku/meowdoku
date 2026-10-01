@@ -2,7 +2,7 @@
 
 <img src="https://64.media.tumblr.com/4feef2c87a7ab8494eb085f4b95927ed/dd4e3af744640f8c-b2/s2048x3072/e92bc6d10b617296d12228b80d4fc9feced5ffe6.pnj" width="500">
 
-$\color{#4664EB}{\text{⠀˖⠀⠀છ⠀⠀better viewed in light mode + pc/laptop !!     ﹙あ﹚}}$
+$\color{#4664EB}{\text{⠀˖⠀⠀છ⠀⠀better viewed in pc/laptop !!     ﹙あ﹚}}$
 
 
 <img align="left" width="350" src="https://i.pinimg.com/1200x/ff/99/65/ff996547ba2096bf91ed53e014381d4a.jpg">
