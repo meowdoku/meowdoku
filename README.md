@@ -1,30 +1,30 @@
 <div align="center">
 
-<img src="https://64.media.tumblr.com/4feef2c87a7ab8494eb085f4b95927ed/dd4e3af744640f8c-b2/s2048x3072/e92bc6d10b617296d12228b80d4fc9feced5ffe6.pnj" width="500">
+<img src="https://64.media.tumblr.com/8a0fdd743e321d1da8fcfe4a58583b01/e16b53e9e620f97c-76/s2048x3072/d22c3c97349283cdc0d3e61f0cc4f05b4374e589.pnj" width="500">
 
-$\color{#4664EB}{\text{⠀˖⠀⠀છ⠀⠀better viewed in pc/laptop !!     ﹙あ﹚}}$
+$\color{#A8F04A}{\text{⠀˖⠀⠀છ⠀⠀𝖻𝖾𝗍𝗍𝖾𝗋⠀}}\color{#E83E91}{\text{𝗏𝗂𝖾𝗐𝖾𝖽⠀}}\color{#A8F04A}{\text{𝗂𝗇⠀}}\color{#E83E91}{\text{𝗉𝖼/𝗅𝖺𝗉𝗍𝗈𝗉⠀}}\color{#A8F04A}{\text{!!⠀}}\color{#E83E91}{\text{﹙あ﹚}}$
 
 
-<img align="left" width="350" src="https://i.pinimg.com/1200x/ff/99/65/ff996547ba2096bf91ed53e014381d4a.jpg">
+<img align="left" width="300" src="https://github.com/user-attachments/assets/99342ac1-1179-40d7-bd9a-864ce29b0555">
 
 <table>
   <tr>
     <td align="center">
 
-$\color{#0029E6}{\text{──────────────── · · ─ · ᓚᘏᗢ · ─ · · ────────────────}}$
+$\color{#FC77CE}{\text{──────────────── · · ─ · ᓚᘏᗢ · ─ · · ────────────────}}$
 
-<img align="right" width="100" src="https://64.media.tumblr.com/92ca16138ae51416bb3db006b3021ee9/24b3de43857fc2f5-8e/s250x400/8ea3ddb42092bcddf1527e93e000cc7bc834a7b9.pnj">
+<img align="right" width="100" src="https://64.media.tumblr.com/6eb8cac3917fd074893fa526505ca421/86548dd69a9a5a18-3c/s100x200/3b8726b0e27c084fc923a28245807805c3bfd042.gifv">
 
-$\color{#96A9FF}{\text{ hai! i'm emi, I am 7teen and go by she/her !! }}$
+$\color{#A8F04A}{\text{ hai! i'm emi, I am 7teen and go by she/her !! }}$
 
-$\color{#59A1D4}{\text{I love music and singing ♡}}$
+$\color{#E83E91}{\text{I love music and singing ♡}}$
 
 
-<img align="left" width="50" src="https://64.media.tumblr.com/f64d0305379e67883cc68fd3a1042269/24b3de43857fc2f5-30/s250x400/c61891534c758699b58cb260a74587687aeacb70.pnj">
+<img align="left" width="50" src="https://64.media.tumblr.com/03dfd8c294da45a89e81e2b381ee347a/750f9dc6573f2849-f4/s75x75_c1/9b6336bf8ba66b58ef44dba2f1d936496b449f4c.gifv">
 
-$\color{#3A5FC7}{\text{C+H at all times! I love cuds with everyone ;3}}$
+$\color{#A8F04A}{\text{C+H at all times! I love cuds with everyone ;3}}$
 
-$\color{#59A1D4}{\text{i like cupcakes cookies and cucumbers ᓚᘏᗢ}}$
+$\color{#E83E91}{\text{i like cupcakes cookies and cucumbers ᓚᘏᗢ}}$
 
 
   </tr>
@@ -32,21 +32,24 @@ $\color{#59A1D4}{\text{i like cupcakes cookies and cucumbers ᓚᘏᗢ}}$
 
 <br clear="left">
 
-<img src="https://64.media.tumblr.com/be3205e6d544045836d99c11c881afbe/e2d1034c6fe5c227-2c/s2048x3072/881545e22600aaa610588b7e14bea27e5b167239.pnj" width="1000">
+<img src="https://64.media.tumblr.com/fa5867462063cf1fcc1255345c011499/dc19ad19e886da02-0d/s1280x1920/488e10121f9fec1e113ec943e868c791fb90c5de.gifv" width="1000">
 
-<img align="right" width="350" src="https://i.pinimg.com/1200x/a2/3a/98/a23a988425f2a1900954baeb278dbb45.jpg">
+<img align="right" width="350" src="https://media1.tenor.com/m/C7BJIRVNx_QAAAAd/lemon-zest-mlp.gif">
+
+
 
 <table>
   <tr>
     <td align="center">
 
-$\color{#0029E6}{\text{──────────────── · · ─ · ᓚᘏᗢ · ─ · · ────────────────}}$
+$\color{#F8A8D8}{\text{──────}}\color{#F5B2D5}{\text{────}}\color{#EFBFD2}{\text{ · · }}\color{#DCCFC7}{\text{─}}\color{#C8D8B8}{\text{ · ᓚᘏᗢ · }}\color{#B8DEAD}{\text{─ · · }}\color{#A9E3A5}{\text{────}}\color{#A0E6A0}{\text{────────}}$
 
-<img align="right" width="100" src="https://64.media.tumblr.com/c913df3c950d7f6ba46e88396ca0997c/ce05632b526fa4fc-c5/s500x750/7263fd6e7d9b33532f0c8611ea6d62601f4550df.pnj">
+<img align="right" width="100" src="https://64.media.tumblr.com/2bf1f72d9074a227960291865701da3b/9fea7b4689271c42-2c/s500x750/4bfe1b58c996f01c3a7ac9ff8c538cb55b1deafd.pnj">
 
 
  <a href="https://github.com/kittinan/spotify-github-profile">
-        <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=natemoo-re&show_offline=true&background_color=fff0f5&interchange=true&profanity=false&hide_remaster=true&bar_color=386CFF&bar_color_cover=false" alt="spotify-github-profile">
+  <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=natemoo-re&show_offline=true&background_color=fff0f5&interchange=true&profanity=false&hide_remaster=true&bar_color=C8D8B8&bar_color_cover=false" alt="spotify-github-profile">
+</a>
 
   </tr>
 </table>
