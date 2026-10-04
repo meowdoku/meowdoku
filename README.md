@@ -16,7 +16,7 @@ $\color{#FC77CE}{\text{──────────────── · · �
 
 $\color{#C94F82}{\text{ emi . she / her }}$
 
-$\color{#F08AB5}{\text{music, sing, sleep ♡}}$
+$\color{#F08AB5}{\text{rnb , kpop, indie pop ♡}}$
 
 <img align="left" width="100" src="https://64.media.tumblr.com/1363489b5915b9519cadadc34b2f5919/e045b03dce85cda4-5b/s540x810/ee591b4ccf8121049c6100dfbb8e7f3db3830691.pnj">
 
