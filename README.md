@@ -4,7 +4,7 @@
 
 $\color{#D94F8A}{\text{⠀˖⠀⠀છ⠀⠀𝖻}}\color{#DD578F}{\text{𝖾}}\color{#E15F94}{\text{𝗍}}\color{#E56799}{\text{𝗍}}\color{#E96F9E}{\text{𝖾}}\color{#ED77A3}{\text{𝗋⠀}}\color{#F17FA8}{\text{𝗏}}\color{#F485AD}{\text{𝗂}}\color{#F78AB2}{\text{𝖾}}\color{#FA90B7}{\text{𝗐}}\color{#FC96BC}{\text{𝖾}}\color{#FE9CC1}{\text{𝖽⠀}}\color{#FF9FC5}{\text{𝗂}}\color{#FFA4C9}{\text{𝗇⠀}}\color{#FFA8CD}{\text{𝗉}}\color{#FFACD1}{\text{𝖼/𝗅𝖺𝗉𝗍𝗈𝗉⠀}}\color{#FFB0D5}{\text{!!⠀}}\color{#FFB4D9}{\text{﹙あ﹚}}$
 
-<img align="left" hspace="20" width="350" src="https://github.com/user-attachments/assets/e554146b-215a-40e1-8e0c-4311d68a3dba">
+<img align="left" hspace="20" width="300" src="https://i.pinimg.com/736x/96/92/9c/96929c4333b458aae273c8983ba21f9e.jpg">
 
 <table>
   <tr>
