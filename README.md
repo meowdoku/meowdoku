@@ -41,6 +41,12 @@ socials below ᓚᘏᗢ
   </tr>
 </table>
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=FFC859&bar_color_cover=false">
+  </a>
+</p>
+
 <img src="https://64.media.tumblr.com/fb59043ff94167535f296b976632464d/f981e7b0cac9fcbd-5b/s2048x3072/6cbaeb13748c509366d71d846ac3d12e8ba6fa0f.pnj" width="1000">
 
 
