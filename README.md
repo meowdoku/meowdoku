@@ -27,7 +27,16 @@ socials below ᓚᘏᗢ
 <sub> [ᜊ𐔌๑ ´  ˔  ` ꒱੭](https://listography.com/meowdoku)⠀˖⠀⠀[(˃ ⤙ ˂ ᵕ)՞.°· ](https://meowdoku.atabook.org/)⠀˖⠀⠀[(,,¬﹏¬,,)](https://vaults.lol/meowdoku)</sub>
 
 
-──────────────── ⚞^. .^⚟ ────────────────
+<details>
+  <summary>♡</summary>
+
+  <p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=FFC859&bar_color_cover=false">
+  </a>
+</p>
+
+</details>
 
 </td>
 
@@ -40,12 +49,6 @@ socials below ᓚᘏᗢ
 
   </tr>
 </table>
-
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=FFC859&bar_color_cover=false" width=350">
-  </a>
-</p>
 
 
 <img src="https://64.media.tumblr.com/fb59043ff94167535f296b976632464d/f981e7b0cac9fcbd-5b/s2048x3072/6cbaeb13748c509366d71d846ac3d12e8ba6fa0f.pnj" width="1000">
@@ -73,7 +76,7 @@ socials below ᓚᘏᗢ
 
 
 
-huge huge HUGE creds to star-blighted, miseryundo, spencentloha-graphics, 4d-gnarp, rupeevie in tumblr for making these scrumptious blinkies!! 😋
+<sub>huge huge HUGE creds to star-blighted, miseryundo, spencentloha-graphics, 4d-gnarp, rupeevie in tumblr for making these scrumptious blinkies!! 😋</sub>
 
 </details>
 </div>
