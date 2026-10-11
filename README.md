@@ -24,7 +24,7 @@ C+H at all times in my presence :>
 
 socials below ᓚᘏᗢ
 
-<sub> [ᜊ𐔌๑ ´  ˔  ` ꒱੭](https://listography.com/meowdoku)⠀˖⠀⠀[(˃ ⤙ ˂ ᵕ)՞.°· ](https://www.askbox.buzz/ask/emidoku)⠀˖⠀⠀[(,,¬﹏¬,,)](https://vaults.lol/meowdoku) </sub>
+<sub> [ᜊ𐔌๑ ´  ˔  ` ꒱੭](https://listography.com/meowdoku)⠀˖⠀⠀[(˃ ⤙ ˂ ᵕ)՞.°· ](https://meowdoku.atabook.org/)⠀˖⠀⠀[(,,¬﹏¬,,)](https://vaults.lol/meowdoku)</sub>
 
 
 ──────────────── ⚞^. .^⚟ ────────────────
