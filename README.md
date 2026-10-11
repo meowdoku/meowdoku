@@ -61,7 +61,19 @@ socials below ᓚᘏᗢ
 
 <img src="https://64.media.tumblr.com/5e14012d06a3956086f2f4daa5ed6e01/739728ce526a3cd6-ed/s250x400/d88f3798c31f232a421b2ce87a21aedead3d037c.gifv" width="300">
 
-huge huge HUGE creds to star-blighted in tumblr for making these scrumptious blinkies!! 😋
+<img src="https://64.media.tumblr.com/81ebba4af18ff21153ca858ff14a4073/9e529bba8cdb60b1-1c/s250x400/2bfb5d17b9466afcd5a54c246526576ce036bae6.gifv" width="300">
+
+<img src="https://64.media.tumblr.com/6a48f2040b5631d8097c8b04b8bd88c2/a748b2f5c3b68b92-80/s1280x1920/191de8e456672221b42aa8f4a0031c4494dc3b5e.gifv" width="300">
+
+<img src="https://64.media.tumblr.com/cbb77b821062f0012faf424c9bc34503/1a5994d84fba8e04-57/s250x400/831845aff8ef45214ef16c495f579deb6d75253b.gifv" width="300">
+
+<img src="https://64.media.tumblr.com/439b7d90ab5dfbacd5239c939b13fde7/be00a1d36dac63e7-c0/s1280x1920/947be0db3141205cd286de0036abdb84da2d081c.gifv" width="300">
+
+
+
+
+
+huge huge HUGE creds to star-blighted, miseryundo, spencentloha-graphics, 4d-gnarp, rupeevie in tumblr for making these scrumptious blinkies!! 😋
 
 </details>
 </div>
