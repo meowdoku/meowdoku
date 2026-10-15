@@ -2,6 +2,8 @@
 
 <img src="https://64.media.tumblr.com/91ea338db22c2daa079b07babc332a9d/da10a3cd592a4ca3-f5/s1280x1920/d4ed249dda09676ca3ba2b94342104fbb1f23526.pnj" width="1000">
 
+![i love you!](https://komarev.com/ghpvc/?username=meowdoku&color=FFCF3B&style=for-the-badge&label=𓆩♡𓆪+angels)
+
 ˖⠀⠀છ⠀⠀𝖻𝖾𝗍𝗍𝖾𝗋 𝗏𝗂𝖾𝗐𝖾𝖽 𝗂𝗇 𝗉𝖼/𝗅𝖺𝗉𝗍𝗈𝗉 !! ﹙あ﹚
 
 <img align="left" hspace="20" width="300" src="https://i.pinimg.com/736x/57/75/e0/5775e00bed494ca372e7a93fab772748.jpg">
