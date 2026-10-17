@@ -1,12 +1,12 @@
 <div align="center">
 
-<img src="https://64.media.tumblr.com/91ea338db22c2daa079b07babc332a9d/da10a3cd592a4ca3-f5/s1280x1920/d4ed249dda09676ca3ba2b94342104fbb1f23526.pnj" width="1000">
+<img src="https://64.media.tumblr.com/c396cf09fd9db75147735448bcef6882/de0da1126f427045-d6/s2048x3072/5cf761afe5b9a21af5405ddd5c998a3900b01642.pnj" width="1000">
 
-![i love you!](https://komarev.com/ghpvc/?username=meowdoku&color=FFCF3B&style=for-the-badge&label=𓆩♡𓆪+angels)
+![i love you!](https://komarev.com/ghpvc/?username=meowdoku&color=268CFF&style=for-the-badge&label=𓆩♡𓆪+challengers)
 
 ˖⠀⠀છ⠀⠀𝖻𝖾𝗍𝗍𝖾𝗋 𝗏𝗂𝖾𝗐𝖾𝖽 𝗂𝗇 𝗉𝖼/𝗅𝖺𝗉𝗍𝗈𝗉 !! ﹙あ﹚
 
-<img align="left" hspace="20" width="300" src="https://i.pinimg.com/736x/57/75/e0/5775e00bed494ca372e7a93fab772748.jpg">
+<img align="left" hspace="20" width="300" src="https://64.media.tumblr.com/d0fe8f6b1d545b2cf6ef8eacc605b37d/19245ffa7b42d85e-0d/s640x960/c37d7aa21b57df84976441f035ab7a7fec001bc2.pnj">
 
 <table>
   <tr>
@@ -14,13 +14,13 @@
 
 ──────────────── · · ─ · ᓚᘏᗢ · ─ · · ────────────────
 
-<img align="right" width="100" src="https://64.media.tumblr.com/d3914a25621eb174792d2cafc9ca7cd1/bbec217276212b76-b4/s500x750/f53a263bffa59785eeaafc7203a101dbe934bd05.pnj">
+<img align="right" width="200" src="https://64.media.tumblr.com/0a73d14908d981d770a163dfd76f3954/19245ffa7b42d85e-b1/s640x960/6edf3438a2f4c35d60364e9de9cdf39a0a59a99a.jpg">
 
 emi . she / her
 
 rnb , kpop, indie pop ♡
 
-<img align="left" width="100" src="https://64.media.tumblr.com/fe8a457a3112800215eca60111dc712f/bbec217276212b76-2a/s540x810/5404c94d7a358c0dc704d0b547186a6b49834d27.pnj">
+<img align="left" width="100" src="https://64.media.tumblr.com/6a61a3ce9301be844ebf54a22e020235/19245ffa7b42d85e-3d/s640x960/eba7705ede3e5fb3e07e8ddb3e03a032aa574574.pnj">
 
 C+H at all times in my presence :>
 
@@ -53,7 +53,7 @@ socials below ᓚᘏᗢ
 </table>
 
 
-<img src="https://64.media.tumblr.com/fb59043ff94167535f296b976632464d/f981e7b0cac9fcbd-5b/s2048x3072/6cbaeb13748c509366d71d846ac3d12e8ba6fa0f.pnj" width="1000">
+<img src="https://64.media.tumblr.com/4feef2c87a7ab8494eb085f4b95927ed/dd4e3af744640f8c-b2/s2048x3072/e92bc6d10b617296d12228b80d4fc9feced5ffe6.pnj" width="1000">
 
 <details>
 <summary>♡ random blinkies ! (fav characters)</summary>
