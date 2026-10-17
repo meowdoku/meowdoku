@@ -22,7 +22,7 @@ rnb , kpop, indie pop ♡
 
 <img align="left" width="100" src="https://64.media.tumblr.com/6a61a3ce9301be844ebf54a22e020235/19245ffa7b42d85e-3d/s640x960/eba7705ede3e5fb3e07e8ddb3e03a032aa574574.pnj">
 
-C+H at all times in my presence :>
+C+H at all times w/ me
 
 socials below ᓚᘏᗢ
 
