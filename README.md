@@ -26,7 +26,7 @@ C + H enc
 
 socials below ᓚᘏᗢ
 
-<sub> [(๑ ´  ˔  ` )੭](https://listography.com/meowdoku)⠀˖⠀⠀[(˃ ⤙ ˂ ᵕ)՞.°· ](https://meowdoku.atabook.org/)</sub>
+<sub> [(๑ ´  ˔  ` )੭](https://listography.com/meowdoku)⠀˖⠀⠀[(˃ ⤙ ˂ ᵕ)՞.°· ](https://emilove.atabook.org/)</sub>
 
 
 <details>
