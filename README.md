@@ -21,7 +21,7 @@
 
 emi . she / her
 
-rnb , kpop, indie pop ♡
+tohru honda kin ♡
 
 <img align="left" width="150" src="https://64.media.tumblr.com/a5355c2b0a7e46c00bdf7b4d36e1d5e7/8842a01eacb4a5fd-41/s2048x3072/164124df81b6116c6e0e2ec5bcd1232578079384.pnj">
 
