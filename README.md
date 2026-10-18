@@ -32,23 +32,11 @@ socials below ᓚᘏᗢ
 <sub> [(๑ ´  ˔  ` )੭](https://listography.com/meowdoku)⠀˖⠀⠀[(˃ ⤙ ˂ ᵕ)՞.°· ](https://emilove.atabook.org/)</sub>
 
 
-<details>
-  <summary>♡</summary>
-
-  <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=3894FF&bar_color_cover=false">
-  </a>
-</p>
-
-</details>
-
 </td>
 
 
   </tr>
 </table>
-
 
 <br>
 
@@ -58,4 +46,29 @@ socials below ᓚᘏᗢ
 
 <img src="https://64.media.tumblr.com/a1b01317eedb9efd91cfb6ca5988fb11/ce7be7e787b151c6-8a/s400x600/60a2baca10450224485a1652f7635208af4b594f.gifv" width="900">
 </details>
-</div>
+
+
+<details>
+  <summary>l e t t e r . f r o m . e m i ♡</summary>
+
+  <p align="left">
+hii everyone!! ♡
+
+okok, as of currently, school has been announcing a lot of activities, requirements, and other things that I need to accomplish, and it's been getting difficult for me to find time to play games like aniimo and pony town :( because of this, i'll be logging off these accounts for a while to focus on my academics and the responsibilities i need to fulfill.)
+
+i'll still be keeping this account active for whenever i feel like sending messages or making public announcements, so please don't think i've completely disappeared! hand on heart, i'm genuinely busy with research, schoolwork, and other academic responsibilities atm.
+
+this isn't me "quitting" pony town or aniimo, i still want to play, meet and chat with the people i encounter, and spend more time with everyone. unfortunately, my calendar is practically filled to the brim with things i need to accomplish, especially with graduation getting closer. i also want to maintain my honors and keep my academic performance consistent, which means putting in more time, effort, and focus into my studies.
+
+i sincerely hope this doesn't upset anyone or put a damper on anyone's perception of me here. this is simply something i need to do for myself and my future, and i hope you can understand where i'm coming from. i'll genuinely miss all the people i've had the chance to talk to and spend time with, even if my time here hasn't been that long.
+
+when i eventually return, i might have a lot of catching up to do since i haven't been around pony town and aniimo for very long in the first place hehe. i look forward to seeing everyone again and hopefully making more memories with you all when things settle down!
+
+thank you for understanding, and please take care of yourselves while i'm away. i'll see you all again soon, hopefully!!
+
+**ily allll, take care!!** ♡
+
+__**Now Playing**__: You'll Play Your Part - Princess Cadance, Princess Luna, Princess Celestia, Princess Twilight Sparkle, MLP ♡
+</p>
+
+</details>
