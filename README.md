@@ -2,7 +2,10 @@
 
 <img src="https://64.media.tumblr.com/c396cf09fd9db75147735448bcef6882/de0da1126f427045-d6/s2048x3072/5cf761afe5b9a21af5405ddd5c998a3900b01642.pnj" width="1000">
 
-![i love you!](https://komarev.com/ghpvc/?username=meowdoku&color=268CFF&style=for-the-badge&label=𓆩♡𓆪+challengers)
+
+<img alt="Raging wave" src="https://img.shields.io/badge/I%27ll_show_you_why_they_call_me_the_raging_wave!-2456FF">
+
+
 
 ˖⠀⠀છ⠀⠀𝖻𝖾𝗍𝗍𝖾𝗋 𝗏𝗂𝖾𝗐𝖾𝖽 𝗂𝗇 𝗉𝖼/𝗅𝖺𝗉𝗍𝗈𝗉 !! ﹙あ﹚
 
