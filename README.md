@@ -29,7 +29,7 @@ C + H enc
 
 socials below ᓚᘏᗢ
 
-<sub> [(๑ ´  ˔  ` )੭](https://listography.com/meowdoku)⠀˖⠀⠀[(˃ ⤙ ˂ ᵕ)՞.°· ](https://emilove.atabook.org/)</sub>
+<sub>⠀˖⠀[(๑ ´  ˔  ` )੭](https://listography.com/meowdoku)⠀˖⠀</sub>
 
 
 </td>
@@ -54,7 +54,7 @@ socials below ᓚᘏᗢ
   <p align="left">
 hii everyone!! ♡
 
-okok, as of currently, school has been announcing a lot of activities, requirements, and other things that I need to accomplish, and it's been getting difficult for me to find time to play games like aniimo and pony town :( because of this, i'll be logging off these accounts for a while to focus on my academics and the responsibilities i need to fulfill.)
+okok, as of currently, school has been announcing a lot of activities, requirements, and other things that I need to accomplish, and I have realized that it's been getting difficult for me balancing my studies and to find time to play games like aniimo and pony town :( because of this, i'll be logging off these accounts for a while to focus on my academics and the responsibilities i need to fulfill.)
 
 i'll still be keeping this account active for whenever i feel like sending messages or making public announcements, so please don't think i've completely disappeared! hand on heart, i'm genuinely busy with research, schoolwork, and other academic responsibilities atm.
 
